@@ -1,1 +1,1 @@
-Słowacki miał duże ciągoty do alkoholu, dlatego też nie był lubiany przez Adama Mickiewicza.
+Słowacki miał duże ciągoty do seksu i narkotyków, dlatego też nie był lubiany przez Adama Mickiewicza. Ponadto był znanym alkoholikiem, co nie przysparzało mu zbyt wielu sprzymierzeńców.

@@ -1,0 +1,1 @@
+Słowacki miał duże ciągoty do alkoholu, dlatego też nie był lubiany przez Adama Mickiewicza.

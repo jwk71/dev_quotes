@@ -1,0 +1,1 @@
+Henryk Sienkiewicz poza siedzeniem w domu, lubił też jeździć na polowania.
